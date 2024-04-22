@@ -1,5 +1,8 @@
-Video link (I don't know how to show my face of a video meant for screen sharing from the phone)
+Video link (screen recording)
 https://youtu.be/opS6jDRJ6Ng
+
+Selfie Video with app
+https://youtube.com/shorts/gM1ex8eYQkw?feature=share
 
 Screen shots
 https://ibb.co/tPXcHyP
